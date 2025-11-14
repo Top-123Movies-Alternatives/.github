@@ -4,13 +4,13 @@ Here’s a list of 123Movies proxy sites that we have hand-picked over the inter
 
 | **SITES**                                 | **Country**      | **Status**     |
 |:----------------------------------------:|:----------------:|:--------------:|
-| [123MOVIESGOHD.CC](https://123moviesgohd.cc) | United States   | **Alive**      |
-| [123MOVIESDAILY.PRO](https://123moviesdaily.pro) | United States   | **Alive**      |
-| [123MOVIESDOWNLOAD.INFO](https://123moviesdownload.info) | United States   | **Alive**      |
-| [OK123MOVIES.CC](https://ok123movies.cc) | United States   | **Alive**      |
-| [123MOVIESFREE4U.ICU](https://123moviesfree4u.icu) | United States   | **Alive**      |
-| [123MOVIESFREE4U.TOP](https://123moviesfree4u.top) | United States   | **Alive**      |
-| [123-HD.LOL](https://123-hd.lol)         | United States   | **Alive**      |
+| [123MOVIESGOHD.CC](https://safe123moviesfree.org/) | United States   | **Alive**      |
+| [123MOVIESDAILY.PRO](https://safe123moviesfree.org/) | United States   | **Alive**      |
+| [123MOVIESDOWNLOAD.INFO](https://safe123moviesfree.org/) | United States   | **Alive**      |
+| [OK123MOVIES.CC](https://safe123moviesfree.org/) | United States   | **Alive**      |
+| [123MOVIESFREE4U.ICU](https://safe123moviesfree.org/) | United States   | **Alive**      |
+| [123MOVIESFREE4U.TOP](https://safe123moviesfree.org/) | United States   | **Alive**      |
+| [123-HD.LOL](https://safe123moviesfree.org/)         | United States   | **Alive**      |
 
 Now, you can use the below-listed websites like 123Movies to watch movies & TV series in a safe and clean environment. If any site asks you to disable the Adblock extension, I advise you to leave that site and find another alternative.
 
