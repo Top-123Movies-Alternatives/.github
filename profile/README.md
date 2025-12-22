@@ -1,16 +1,16 @@
-# 123Movies Proxy List Updated [2024]
+# 123Movies Proxy List Updated [2026]
 
 Here’s a list of 123Movies proxy sites that we have hand-picked over the internet. The 123Movies proxy site list below is updated regularly and verified by us. All the 123Movies mirror and proxy sites can be opened directly in your browser.
 
 | **SITES**                                 | **Country**      | **Status**     |
 |:----------------------------------------:|:----------------:|:--------------:|
-| [123MOVIESGOHD.CC](https://safe123moviesfree.org/) | United States   | **Alive**      |
-| [123MOVIESDAILY.PRO](https://safe123moviesfree.org/) | United States   | **Alive**      |
-| [123MOVIESDOWNLOAD.INFO](https://safe123moviesfree.org/) | United States   | **Alive**      |
-| [OK123MOVIES.CC](https://safe123moviesfree.org/) | United States   | **Alive**      |
-| [123MOVIESFREE4U.ICU](https://safe123moviesfree.org/) | United States   | **Alive**      |
-| [123MOVIESFREE4U.TOP](https://safe123moviesfree.org/) | United States   | **Alive**      |
-| [123-HD.LOL](https://safe123moviesfree.org/)         | United States   | **Alive**      |
+| [123MOVIESGOHD.CC](https://bahaviofilm/) | United States   | **Alive**      |
+| [123MOVIESDAILY.PRO](https://bahaviofilm/) | United States   | **Alive**      |
+| [123MOVIESDOWNLOAD.INFO](https://bahaviofilm/) | United States   | **Alive**      |
+| [OK123MOVIES.CC](https://bahaviofilm/) | United States   | **Alive**      |
+| [123MOVIESFREE4U.ICU](https://bahaviofilm/) | United States   | **Alive**      |
+| [123MOVIESFREE4U.TOP](https://bahaviofilm/) | United States   | **Alive**      |
+| [123-HD.LOL](https://bahaviofilm/)         | United States   | **Alive**      |
 
 Now, you can use the below-listed websites like 123Movies to watch movies & TV series in a safe and clean environment. If any site asks you to disable the Adblock extension, I advise you to leave that site and find another alternative.
 
